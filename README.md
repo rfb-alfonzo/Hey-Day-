@@ -1,4 +1,4 @@
-# What is Hey Day at Auburn 
+# What is Hey Day at Auburn?
 
 During World War II, college students were eligable for the draft.  When the war ended, those drafted tried and returned to the normal life of a college student.  
 However, upon their return they felt unseen.  In response to this, the Auburn University student body came up with "Hey Day", a day that is meant to unite the Auburn Family.
